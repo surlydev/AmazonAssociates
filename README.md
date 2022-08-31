@@ -1,2 +1,3 @@
 # AmazonAssociates
-Associates links to stuff on Amazon
+Stuff I'm buying from Amazon perhaps. Associates links.
+
